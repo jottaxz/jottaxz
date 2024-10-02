@@ -1,0 +1,5 @@
+-Olá eu sou jottaxz✌🏼
+-Tenho 15 anos de idade🤡
+-Gosto de jogar futebol⚽️
+-Sou estudante do ensino médio👨‍🎓
+-Sou vicíado em Free Fire e Brawl Stars⭐️💥
